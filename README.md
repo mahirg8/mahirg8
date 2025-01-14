@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mahirgautam8@gmail.com**
 
-- 📄 Know about my experiences [https://www.dropbox.com/scl/fi/nai4kzm4jdrbaubdhlrph/mahir-resume.pdf?rlkey=nf8ek0b00hp0at25lr28vnh7u&st=teaahmm5&dl=0](https://www.dropbox.com/scl/fi/nai4kzm4jdrbaubdhlrph/mahir-resume.pdf?rlkey=nf8ek0b00hp0at25lr28vnh7u&st=teaahmm5&dl=0)
+- 📄 Know about my experiences [https://www.dropbox.com/scl/fi/4ggqz6nnd5u2ngtehb7nj/Curriculum_vitae__2_-2.pdf?rlkey=jd6me6nraskmoty7wjwatqh9c&st=dq0qnqm1&dl=0](https://www.dropbox.com/scl/fi/4ggqz6nnd5u2ngtehb7nj/Curriculum_vitae__2_-2.pdf?rlkey=jd6me6nraskmoty7wjwatqh9c&st=dq0qnqm1&dl=0)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
